@@ -1,4 +1,4 @@
 India capital is Delhi
 Karnataka capital is bangalore
-Andra
-Kolkatta
+Andra capital Hydrebad
+Kolkata xxxxxxxxxxxxxxxxxx
